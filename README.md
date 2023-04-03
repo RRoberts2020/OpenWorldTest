@@ -5,15 +5,15 @@ Links:
 
 OneDrive storage - https://uweacuk-my.sharepoint.com/:f:/g/personal/reece2_roberts_live_uwe_ac_uk/Ek-3XdkN9SpCidtHQPSfjhoBqU9oNAw2WoQ8oL_IF1zlvg?e=FfB6QR
 
-Progress week 1 - https://youtu.be/KkqH-o4b9ro
+Progress week 1 - https://youtu.be/ztpFidWfDSs
 
-Progress week 2 - https://youtu.be/Z1hKhxCUmwM
+Progress week 2 - https://youtu.be/ss2xH_OwcVQ
 
-Progress week 3 - https://youtu.be/JpcOtAr5m0A
+Progress week 3 - https://youtu.be/aadkx4tGT5g
 
-Progress week 4 - https://youtu.be/ZdQ4hn2ZVhw
+Progress week 4 - https://youtu.be/mRzYovk14j8
 
-Progress week 5 - https://youtu.be/lxqAfBg1NDA
+Progress week 5 - https://youtu.be/tdvkZ-0pwq0
 
 
 Launching program build:
